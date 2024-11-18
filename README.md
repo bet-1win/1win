@@ -1,5 +1,5 @@
 <h2>¿Por Qué Elegir 1Win? La Plataforma que Lo Tiene Todo</h2>
-<p>1Win no es solo una plataforma de juegos; es un universo diseñado para ofrecer innovación, múltiples opciones y entretenimiento sin igual. Desde los principiantes hasta los jugadores más experimentados, 1Win tiene algo especial para todos. Descubre qué hace de 1Win la mejor elección frente a sus competidores.</p>
+<p><a href="https://cine-arte.net/">1win </a> no es solo una plataforma de juegos; es un universo diseñado para ofrecer innovación, múltiples opciones y entretenimiento sin igual. Desde los principiantes hasta los jugadores más experimentados, 1Win tiene algo especial para todos. Descubre qué hace de 1Win la mejor elección frente a sus competidores.</p>
 
 <h3>Entretenimiento Sin Límites con 1Win</h3>
 <ul>
